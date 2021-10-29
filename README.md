@@ -1,0 +1,1 @@
+# bamed_beauty_clinic
